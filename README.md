@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Haward 
+- 👀 I’m interested in ... art and software development 
+- 🌱 I’m currently building  ... myMushrum🍄 
